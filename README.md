@@ -1,1 +1,3 @@
 # GSCS
+
+The Granite State Choral Society has shared its joy of singing and love of music with friends and neighbors since 1974. Its members come from every walk of life with a wide variety of backgrounds and include experienced singers and musicians to novices who are just discovering the joys of choral singing. The chorus performs music from various time periods and cultures including Broadway tunes, folk songs from around the world, as well as well-known classical works.  Many generous volunteers in the community assist us in promoting the appreciation of the choral and musical arts and, very often, a portion of the proceeds from our annual concerts are presented to area organizations to help them achieve their goals in serving the community as well.
